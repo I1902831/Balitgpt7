@@ -1,1 +1,1 @@
-# Balitgpt7.com
+# Balitgpt7
